@@ -1,2 +1,0 @@
-arterzatij.github.io
-====================
